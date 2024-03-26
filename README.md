@@ -1,1 +1,1 @@
-# -trader-s-diary
+traider's diary
