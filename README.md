@@ -1,1 +1,1 @@
-traider's diary
+trader's diary
